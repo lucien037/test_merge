@@ -1,4 +1,3 @@
-<<<<<<< HEAD
 Vie est son avenir loin
 =======
 Les anges de l'enfer l'escortent
