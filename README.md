@@ -1,4 +1,4 @@
-Mort est son avenir proche
+Vie est son avenir loin
 Les anges de l'enfer l'escortent
 Le hashtag #Vie tient peut-être d'elle
 De son cou pendu à la corde
